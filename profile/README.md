@@ -1,9 +1,6 @@
-# welcome to my github!
-here trash! 
-??:well.. 
+# dzzdrzrx
+who know?
+
+# web links.
 
 
-
-# XCss(Xcodes plus)
-# Xsave(failed.)
-# webui (???)

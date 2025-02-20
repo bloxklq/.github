@@ -1,2 +1,16 @@
-# XCss renamed hxpSPzk.
-I was originally thinking of using XCSS, but I think I'll have to use a different name.
+# hxpSPzk
+fast Roblox executors
+
+# function
+1.no ads no keys
+2.scripts fast loads
+3.esay guis.
+
+# how to get hxpSPzk?
+Coming soon...
+
+# hxpSPzk is safe???
+Yes! No Virus.
+
+#Legal? 
+You can use it as an alt account. 

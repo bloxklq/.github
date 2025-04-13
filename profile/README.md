@@ -1,1 +1,4 @@
-<a herf="https://github.com/dzzdrzrx">zbzhsz</a>
+[Youtube channel]()
+[Roblox id](https://pages.github.com/)
+[discord](https://pages.github.com/)
+[My site(soon....)](https://pages.github.com/)
